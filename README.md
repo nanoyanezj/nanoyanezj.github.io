@@ -1,2 +1,2 @@
 # nanoyanezj.github.io
-JEFE GO Y EL PMO PIDEN MUCHA DOCUMENTACION
+
